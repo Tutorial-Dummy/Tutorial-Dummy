@@ -1,3 +1,4 @@
-![xazQi1e](https://github.com/user-attachments/assets/a5a94a74-b85b-42b1-b630-f40f4f96a133)
 
-render credits to qorzty themselves on the official discord
+![20250410_125258](https://github.com/user-attachments/assets/90de9272-7a91-4af4-a477-88a5fa715931)
+
+art by saboxteur on twitter
